@@ -1,0 +1,5 @@
+- 👋 Hi, I’m DINO NUGGIES
+- 👀 I’m interested in balls
+- 🌱 I’m currently learning german
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me discord [💗DINO NUGGIES💗#2696]
